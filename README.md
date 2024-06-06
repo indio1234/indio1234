@@ -1,16 +1,22 @@
-## Hi there 👋
+um salvinho pá nois 👋 
 
-<!--
-**indio1234/indio1234** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+boa boa rapaziada a pampa mi neme Alex
+no momento estou me escondendo em sp São Paulo, porq eu sou o batima de diadema 
 
-Here are some ideas to get you started:
+![](https://media1.tenor.com/m/QMYzBQ1BIhcAAAAC/staring-batman.gif)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+nesse estantes luto contra os noia de K9 espalhado em diadema 
+
+
+![](https://media1.tenor.com/m/TM9nOVDpujUAAAAC/yay-gif.gif)
+
+
+
+
+
+
+
+
+
+
